@@ -1,3 +1,0 @@
-
-## Notas:
-Por favor no robar este sitio web...
